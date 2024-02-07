@@ -34,4 +34,4 @@ Este proyecto está bajo la Licencia MIT. Para más detalles, consulta el archiv
 
 ## Contacto
 
-Para cualquier pregunta o sugerencia, no dudes en ponerte en contacto con nosotros a través de [correo electrónico](mailto:info@airdrops.com).
+Para cualquier pregunta o sugerencia, no dudes en ponerte en contacto con nosotros a través de [correo electrónico](oxalatoframing@gmail.com).
